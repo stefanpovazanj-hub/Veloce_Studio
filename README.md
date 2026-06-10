@@ -1,1 +1,0 @@
-# Veloce_Studio
